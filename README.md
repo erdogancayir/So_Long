@@ -1,3 +1,3 @@
 
 # So_Long
-![](file:///Users/ecayir/.TemporaryItems/folders.101357/TemporaryItems/(Belge%20screencaptureui%20Taraf%C4%B1ndan%20Kaydediliyor)/Ekran%20Resmi%202022-04-17%20O%CC%88S%203.33.30.png)
+<img width="547" alt="Ekran Resmi 2022-04-17 ÖS 3 30 41" src="https://user-images.githubusercontent.com/94300378/163714446-b042508e-f63d-45c0-af55-31cfe55873ea.png">
